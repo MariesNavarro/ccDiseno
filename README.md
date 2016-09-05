@@ -15,7 +15,7 @@ _______________________________________
 ## Participantes:
 
  - Eduardo H. Obieta
- - Maries N
+ - Maries Navarro
  -
  -
 
